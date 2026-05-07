@@ -1,0 +1,1 @@
+# konta-privacy-policy
